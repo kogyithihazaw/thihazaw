@@ -1,1 +1,1 @@
-https://www.yalla-live.io
+https://www.thihazaw.tk
